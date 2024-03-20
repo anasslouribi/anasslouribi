@@ -1,5 +1,6 @@
 # Hello my name is Anass Louribi
-------------------------- ![Untitled_41_303721366](https://github.com/anasslouribi/git/assets/106435885/6b825397-55db-4e3b-8431-724508cfa907) -------------------------
+------------------------- ![Untitled_41_303721366](https://github.com/anasslouribi/hello/assets/106435885/2da81696-18e4-4a08-b7d9-6779c3b458be)
+ -------------------------
 
 🚀 Exploring the fascinating world of coding! 🌟
 
