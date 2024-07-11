@@ -1,4 +1,4 @@
-# Hello my name is Anass Louribi
+# Hello, my name is Anass Louribi
 -------------- ![Untitled_41_303721366](https://lareleve.ma/wp-content/uploads/2022/03/Untitled_41_303721366.jpg) --------------
 
 ###### 🚀 Exploring the fascinating world of coding! 🌟
